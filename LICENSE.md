@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative Sniper for sandwich attack bot | flash-loan-arbitrage & snipe-list-management, the #1 sandwich attack bot. Includes flash-loan-arbitrage and
 
 
 
